@@ -1,5 +1,5 @@
 
-![IMG_1258](https://github.com/user-attachments/assets/8ad99961-4565-4991-9163-714b17234ca5)
+![IMG_0555](https://github.com/user-attachments/assets/01b707fe-9040-43cb-ad74-888bcb2e3aa7)
 
 <!--
 **orriannafizz/orriannafizz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
